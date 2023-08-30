@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SilverCharizard
-- 👀 I’m interested in coding
+- 👀 I’m interested in video games
 - 🌱 I’m currently learning minecraft modding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
